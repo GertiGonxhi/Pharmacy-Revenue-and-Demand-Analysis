@@ -60,5 +60,5 @@ https://datastudio.google.com/s/mVeGaOYzELo
 
 ## Contact
 
-📧 Email: Geerttsh@gmail.com  
+📧 Email: Geertt.sh@icloud.com  
 🔗 LinkedIn: https://linkedin.com/in/gerti-gonxhi-40539a391
